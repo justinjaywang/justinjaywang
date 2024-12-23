@@ -2,4 +2,4 @@
 
 I design brands, websites, and tools. I code occasionally, too. ✌️
 
-[justinjay.wang &rarr;](https://justinjay.wang/)
+[justinjay.wang](https://justinjay.wang/)
